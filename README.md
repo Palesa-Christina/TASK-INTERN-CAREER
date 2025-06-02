@@ -1,2 +1,2 @@
 # InternCareer
-Link to my InerntCareer Cybersecurity internship tasks 
+Link to my InternCareer Cybersecurity internship tasks 
